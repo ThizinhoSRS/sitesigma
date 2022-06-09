@@ -1,2 +1,0 @@
-# sitesigma
-não tem
